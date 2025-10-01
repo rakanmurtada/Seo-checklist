@@ -25,3 +25,10 @@ No Guesswork. Just Proven SEO Tactics and Strategies that will help you Attract 
 12. Bundle CSS and JS Resources
 13. Minimize these resources (OUR WEBSITE DOES NOT LOAD ANY CSS OR JS FILES)
 14. Optimize Performance and Load speed 
+
+
+# Affordable SEO Services 
+https://web-design-firm.com/seo-services/
+
+# Free Social Bookmarking Websites
+- ToDo 
