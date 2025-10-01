@@ -30,5 +30,5 @@ No Guesswork. Just Proven SEO Tactics and Strategies that will help you Attract 
 # Affordable SEO Services 
 https://web-design-firm.com/seo-services/
 
-# Free Social Bookmarking Websites
-- ToDo 
+# NO FOLLOW USELESS WEBSITES
+https://www.bookmarkidea.com/author/webdesignfirm/
